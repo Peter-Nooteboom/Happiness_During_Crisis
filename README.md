@@ -1,4 +1,4 @@
-# Global Happiness During Crisis
+# Global Mental Health During Crisis
 ---
 
 ![Global Happiness During Crisis](https://i.imgur.com/32sz4Qo.jpeg)
